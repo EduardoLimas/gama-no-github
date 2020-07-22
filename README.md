@@ -1,0 +1,1 @@
+O curso de programação da Gama Academy é excelente
